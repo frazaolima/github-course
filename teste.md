@@ -8,3 +8,4 @@
 
  Gostou do curo? Quer mais ? Ajude com uma doação, até um café é valido =)
 
+hahahahaha consegui commid śozinho hahahah
